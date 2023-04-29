@@ -3,9 +3,9 @@
 
 
 
-              Check out the my personal twitch (https://twitch.tv/Mega_kabutops).
+              Check out the my personal twitch(https://twitch.tv/Mega_kabutops).
               
               
               
               
-              [your characters] (http://thedarksaga.ink/Characters)
+              [your characters](http://thedarksaga.ink/Characters)
