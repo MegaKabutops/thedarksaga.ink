@@ -4,3 +4,8 @@
 
 
               Check out the my personal twitch [twitch](https://twitch.tv/Mega_kabutops).
+              
+              
+              
+              
+              [your characters](characters)
