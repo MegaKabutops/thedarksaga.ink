@@ -1,1 +1,1 @@
-Here are All the characters that has appeared in The Dark Saga!
+Here are All the Characters that has appeared in The Dark Saga!
