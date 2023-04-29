@@ -4,4 +4,4 @@ Check out the my personal [Twitch](https://twitch.tv/Mega_kabutops)
               
               
               
-[All Characters](thedarksaga.ink/characters)
+[All Characters](/characters)
