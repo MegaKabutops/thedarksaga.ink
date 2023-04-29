@@ -8,4 +8,4 @@
               
               
               
-              [your characters](Characters)
+              [your characters] (http://thedarksaga.ink/Characters)
