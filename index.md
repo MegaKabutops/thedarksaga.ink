@@ -3,7 +3,7 @@
 
 
 
-              Check out the my personal twitch [https://twitch.tv/Mega_kabutop](url).
+              Check out the my personal twitch (https://twitch.tv/Mega_kabutop).
               
               
               
